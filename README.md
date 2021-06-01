@@ -1,0 +1,1 @@
+# GCMotion_Privacy-policy
